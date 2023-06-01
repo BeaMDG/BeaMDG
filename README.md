@@ -9,7 +9,6 @@
 
 - 📄 Conoce mi experiencia a través de Linkdn [https://es.linkedin.com/in/beatriz-mendes-da-gra%C3%A7a-901387190?original_referer=https%3A%2F%2Fwww.google.com%2F](https://es.linkedin.com/in/beatriz-mendes-da-gra%C3%A7a-901387190?original_referer=https%3A%2F%2Fwww.google.com%2F)
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
